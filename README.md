@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **praveenanand801@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SGM1XvmyPwDBmMcPrLMFfMkAQWTxipHX/view?usp=drivesdk](https://drive.google.com/file/d/1SGM1XvmyPwDBmMcPrLMFfMkAQWTxipHX/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zf-uhhniJmio0PpPL5cvDLLUUjkRSlzc/view?usp=drivesdk](https://drive.google.com/file/d/1SGM1XvmyPwDBmMcPrLMFfMkAQWTxipHX/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
