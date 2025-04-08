@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=cricketerboy&label=Profile%20views&color=0e75b6&style=flat" alt="cricketerboy" /> </p>
 
-- 🔭 I’m currently working on **GrowOnGo**
+- 🔭 I’m currently working at **Ninjacart**
 
 - 👨‍💻 All of my projects are available at [https://portfolio-three-xi-10.vercel.app/](https://portfolio-three-xi-10.vercel.app/)
 
